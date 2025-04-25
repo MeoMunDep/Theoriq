@@ -6,4 +6,4 @@
 
 📌 Serious buyers only. Let's keep it professional! 🚀
 
-🌐 [Ultima Bulls Link](https://quests.theoriq.ai/?r=j6JV3nCV)
+🌐 [Theoriq Link](https://quests.theoriq.ai/?r=j6JV3nCV)
